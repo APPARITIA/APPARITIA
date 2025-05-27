@@ -7,3 +7,7 @@
 
 <p align="center">
  𝗣𝗼𝗼𝗯 ₒᵣ 𝗔𝘇𝘂𝗿𝗲 ₒᵣ 𝗛𝗤
+
+<P align="middle"><img src="https://github.com/user-attachments/assets/ed1bda99-181d-47b7-8993-87f9cdb6b617"/>⠀
+𝘢𝘯𝘺 ⦁ 𝘵𝘩𝘦𝘺/𝘪𝘵/𝘩𝘦
+
