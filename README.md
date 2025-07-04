@@ -1,9 +1,6 @@
 
 <p align="middle"><img src="https://github.com/user-attachments/assets/7770f700-b76e-4c84-84ac-dbbc1ba8be8e"/>
 
-<p align="center">
- " Ｆａｌｌ ｕｎｄｅｒ ｏｕｒ ｈｙｐｎｏｓｉｓ "
-
 
 <p align="center">
 𝙋𝙤𝙤𝙗 ₒᵣ 𝗕𝗲𝗲𝘁𝗹𝗲 ₒᵣ 𝗧𝗿𝗶𝗽𝗺𝗶𝗻𝗲
