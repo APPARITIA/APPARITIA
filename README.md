@@ -1,8 +1,6 @@
-
-<p align="middle"><img src="https://github.com/user-attachments/assets/81342f54-a31a-42a7-a358-c4bab737f9ec"/>
-
-<img width="500" height="63" alt="image" src="https://github.com/user-attachments/assets/ff928637-e2e4-4e89-b39b-ad15f8131880" />
+<p align="middle"><img src="https://github.com/user-attachments/assets/e72c2ff7-d436-4ccd-8aa1-29561945d48b"/>
 
 
-WIP!! COME BACK WHEN IM PROBABLY DONE >w<
 
+
+<p align="middle"><img src="https://github.com/user-attachments/assets/5e559d72-e443-4ebc-bbc4-ab0a3b39e685"/>
